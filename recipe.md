@@ -20,4 +20,4 @@
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
 
 ## Aditional Directions by Janya:
-7. Once it's baked, cover it in sprinkles
+7. Once it's baked, cover it in sprinkles.
